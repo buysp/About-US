@@ -1,1 +1,1 @@
-# About-US
+Sixs Pharma is a Europe-based laboratory specialising in premium pharmaceuticals to meet the highly specific needs of our end customers. Our facility operates under strict adherence to international standards, ensuring the highest quality and safety in every product that we produce.
